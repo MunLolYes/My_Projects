@@ -8,6 +8,9 @@ Welcome to a website full of itzmunlayt1shadowxD's projects!
 
 ## 2. A Difficulty Chart:
 
-<img src=""/>
+<img src="https://i.ibb.co/WWjZ6kj/Roblox-Screen-Shot20210722-164641178.png"/>
 
-## <a href="https://www.youtube.com/watch?v=otBsOKb8SUw&t=175s"> Youtube vid with it
+## <a href="https://www.youtube.com/watch?v=otBsOKb8SUw&t=175s"/> Youtube vid with it
+
+
+## More coming soon!
